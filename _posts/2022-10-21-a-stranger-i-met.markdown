@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "a stranger i met"
-date:   2022-10-21 14:56:45
+date:   2022-10-21 14:56:45 -0500
 categories: [friendship, love, companion]
 ---
 

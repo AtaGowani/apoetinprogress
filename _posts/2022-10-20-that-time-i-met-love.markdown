@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "that time i met love"
-date:   2022-10-20 20:34:01
+date:   2022-10-20 20:34:01 -0500
 categories: [love]
 ---
 As a kid, I dreamt of love. I was so familiar with its smile, its laughter, and all its beauty. 
