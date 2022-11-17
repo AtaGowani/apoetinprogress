@@ -12,8 +12,6 @@ Mein khud se ajanabee ho ke in lambo mein kho gaya
 
 Har dard har fikr jo saath laaya tha voh bhee gaya
 
-Yeh baate vaqt seh bhee aage hai 
-
-In guftaghu mein hum ne naah jaahane kitane zamaane jihee liye
+Yeh baate vaqt seh bhee aage hai, in guftaghu mein hum ne naah jaahane kitane zamaane jihee liye
 
 Nah jaane ab kab milee, kamas kam teree maujoodagee mein doh pal toh jihee liye
