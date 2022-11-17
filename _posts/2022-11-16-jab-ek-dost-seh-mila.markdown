@@ -10,7 +10,7 @@ Is dil ke qaidee sapane bhee pharaar ho gae
 
 Mein khud se ajanabee ho ke in lambo mein kho gaya
 
-Har dard har fikr jo saath laaya tha voh bhee gaya
+Har dard, har fikr jo saath laaya tha voh bhee gaya
 
 Yeh baate vaqt seh bhee aage hai, in guftaghu mein hum ne naah jaahane kitane zamaane jihee liye
 
