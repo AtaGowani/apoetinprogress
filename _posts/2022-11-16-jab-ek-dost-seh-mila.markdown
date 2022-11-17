@@ -4,14 +4,14 @@ title:  "jab ek dost seh mila (Urdu)"
 date:   2022-11-16 20:00:00 -0500
 categories: [friendship]
 ---
-Teri baaton ke aage mere din beperava ho ke qurbaan ho gae
+Teri bato ke aage mere din beparva ho ke qurban ho gaye
 
-Is dil ke qaidee sapane bhee pharaar ho gae
+Is dil ke qaidi sapne bhi faraar ho gaye
 
-Mein khud se ajanabee ho ke in lambo mein kho gaya
+Mein khud se ajnabi ho ke in lamho mein kho gaya
 
-Har dard, har fikr jo saath laaya tha voh bhee gaya
+Har dard, har fikr jo saat laaya tha, voh bhi gaya
 
-Yeh baate vaqt seh bhee aage hai, in guftaghu mein hum ne naah jaahane kitane zamaane jihee liye
+Yeh bate waqt seh bhi aage hai, in guftagu mein hum ne nah janee kitneh zamane jee liye
 
-Nah jaane ab kab milee, kamas kam teree maujoodagee mein doh pal toh jihee liye
+Nah janee ab kab mile, kamas kam teri mojudagi meh doh pal toh jee liye
