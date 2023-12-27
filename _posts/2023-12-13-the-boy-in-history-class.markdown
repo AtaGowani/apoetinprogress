@@ -18,7 +18,7 @@ Oh how wrong the world has proven the boy I used to be
 
 For we have seen spineless cowards and greedy leaders support a genocide with glee
 
-**To that boy today I say:**
+**To that boy, today I say:**
 
 *Be the voice you had hoped the people in your history books had raised*
 
