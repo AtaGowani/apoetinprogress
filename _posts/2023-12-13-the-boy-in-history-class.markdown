@@ -2,7 +2,7 @@
 layout: post
 title:  "the boy in history class"
 date:   2023-07-14 19:30:00 -0500
-categories: [love]
+categories: [injustice, palestine]
 ---
 Growing when I learned about atrocities in history class
 
