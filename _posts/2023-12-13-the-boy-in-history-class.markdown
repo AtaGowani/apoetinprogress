@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "the boy in history class"
-date:   2023-12-13 19:30:00 -0500
+date:   2023-12-13 8:30:00 -0500
 categories: [injustice, palestine]
 ---
 Growing up when I learned about atrocities in history class

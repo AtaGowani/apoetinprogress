@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "the caged bird"
-date:   2024-01-02 19:30:00 -0500
+date:   2024-01-02 8:30:00 -0500
 categories: [injustice, palestine, freedom]
 ---
 I once saw a bird choose death over the comfort of a well-sustained cage.
