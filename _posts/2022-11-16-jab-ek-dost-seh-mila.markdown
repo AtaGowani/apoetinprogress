@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "jab ek dost seh mila (Urdu)"
-date:   2022-11-16 20:00:00 -0500
+date:   2022-11-16 8:30:00 -0500
 categories: [friendship]
 ---
 Teri bato ke aage mere din beparva ho ke qurban ho gaye

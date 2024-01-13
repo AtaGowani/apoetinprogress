@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "the beauty beyond"
-date:   2022-10-23 00:11:00 -0500
+date:   2022-10-23 8:30:00 -0500
 categories: [love, beauty]
 ---
 Unsuspecting I met you.
