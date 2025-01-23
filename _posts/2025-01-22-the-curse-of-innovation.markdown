@@ -14,7 +14,7 @@ what great promises came along as lies
 
 before we could look around and realize we've been betrayed
 
-we told innovation is natural, it'd be insane to look at it any other way
+we were told innovation is natural, it'd be insane to look at it any other way
 
 so let's continue, let's move forward, let's not stop to think
 
