@@ -20,4 +20,6 @@ so let's continue, let's move forward, let's not stop to think
 
 we can just ignore the fires around us. let's not get caught up in climate change
 
+don't you remember, innovation is the way
+
 **come join us, let's innovate. don't let your morals lead you astray**
